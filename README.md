@@ -20,4 +20,4 @@ Como ainda estou no processo de construção dos meus projetos mais relevantes, 
 
 ### Perfil no Linkedin
 
-[Luan Iago Carletto - Mentorado - Feel Tech RH | LinkedIn](https://www.linkedin.com/in/luancarletto/)
+[Luan Iago Carletto | LinkedIn](https://www.linkedin.com/in/luancarletto/)
